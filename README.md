@@ -2,7 +2,8 @@
 - 👀 I’m interested in everything
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on whoeverbody 
-- 📫 How to reach me ¿?
+- 📫 How to reach me:
+-   email: rosalioalfre2@gmail.com
 
 I just wanna be happy.
 
